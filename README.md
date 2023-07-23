@@ -1,1 +1,1 @@
-![:green_heart:](https://i.imgur.com/bZBaFXr.png)
+![:green_heart:](https://i.imgur.com/z50I25V.png)
